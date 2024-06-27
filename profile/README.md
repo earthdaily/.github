@@ -3,7 +3,7 @@
 
 **Learn more:**
 
-Right now, EarthDaily is working on building amazing software together, and there are some exciting opportunities for you to get involved:
+Right now, EarthDaily is working on building amazing software together, and there are some exciting opportunities for you to get involved:
 
 - [How can you get involved](https://earthdaily.com/foundational-partner-program/)
 
